@@ -1,3 +1,0 @@
-# Villanos
-Jocker
-Doomsday
